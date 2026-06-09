@@ -1,4 +1,4 @@
-# 
+# Premium leverage trading bot complementos para Mac OS | Turbo leverage trading bot complementos para PC Windows. Com assinatura de transações e detecção de breakout — otimizado para máximo desempenho em cada plataforma.
 
 
 
